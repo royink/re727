@@ -28,7 +28,7 @@ https://github.com/Mue11er/re727/blob/master/16.jpg
 
 爱国主义辩证法https://github.com/Mue11er/re727/blob/master/17.png , 怎么完？靠白编辑去台湾造墙么？
 
-药丸时报最近一次的人肉威胁是针对CN Block List，号称Telegram官方为了限制药丸时报的言论自由，利用CBL对药丸进行封杀。威胁人肉CBL成员Sion，导致CBL解散。Sion在药丸群的一段发言:https://github.com/Mue11er/re727/blob/master/18.png https://github.com/Mue11er/re727/blob/master/19.png , 同时还提到过这次事件有一个“民运人士”加入药丸一方，但未透露详情。
+药丸时报最近一次的人肉威胁是针对CN Block List，号称Telegram官方为了限制药丸时报的言论自由，利用CBL对药丸进行封杀。威胁人肉CBL成员Sion，导致CBL解散。Sion在药丸群的一段发言:https://github.com/Mue11er/re727/blob/master/23.png https://github.com/Mue11er/re727/blob/master/24.png , 同时还提到过这次事件有一个“民运人士”加入药丸一方，但未透露详情。
 
 在调查的过程中记录了白编辑两次剧烈的手抖。手一抖，证据没了https://github.com/Mue11er/re727/blob/master/20.png ，手再一抖，炸了https://github.com/Mue11er/re727/blob/master/21.jpg 。
 
